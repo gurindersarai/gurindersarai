@@ -4,7 +4,7 @@
 <!---
 ( 💞️ I’m looking to collaborate on ...)--->
 
-- 📫 Insta: gurindersarai
+- 📫 Insta and snapchat : gurindersarai
 
 <!---
 gurindersarai/gurindersarai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
